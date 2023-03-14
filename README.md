@@ -3,5 +3,5 @@
 From top to bottom:
 
 God
-Family
+Family & Friends
 Internet
